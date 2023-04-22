@@ -8,4 +8,4 @@
 📝 estudando javascript <br>
 📚 leitor nas horas vagas <br>
 🫀 grande fã da taylor swift <br>
-✉️ lopesbgabriel@gmail.com
+✉️ lopesbgael@gmail.com
